@@ -1,0 +1,9 @@
+## [Why we chose Rainbow Ranger Boilers](https://hotmesstohomestead.wordpress.com/2020/10/05/why-we-chose-rainbow-ranger-boilers/)
+
+Contrary to popular belief, chickens from the store are not grown with growth hormone, nor are they artificially grown or “GMO”. What they have been is selectively bred to fit industry standards, which produced chickens perfect for cage and floor raising; lazy, big breasted, fast growing, thin skinned, sparsely feathered birds that turns feed to meat at a 3.5 to 1 ratio. While good for the market, it produces birds that stink, break their legs under their own weight, and overall are a horrible experience to raise.
+
+My preferred birds to raise for meat would be a heritage duel purpose breed, which would also be broody so I never have to buy chicks again. However, at a 24 week maturity rate, the tendency of roosters to fight each other, and the cost of keeping a broody flock, I've decided that duel purpose heritage bred birds are not the right fit for our high production needs (100 birds a year on average).
+
+Rainbow Ranger broiler chickens fill the need for fast growth and high feed to weight conversion that's needed for larger production, while keeping an active and (in my opinion) healthier bird. This was accomplished by selective breeding for all these traits over several generations, like the commercial broiler chickens, but with a different goal in mind. This is the chicken we purchase to raise for Just Our Chicken.
+
+We recommend (but are not endorsed by) [http://www.meyerhatchery.com](http://www.meyerhatchery.com/) to purchase chicks and poultry related supplies.
